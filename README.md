@@ -1,4 +1,11 @@
-# kersha
+# kersha, its the name of the repo. Kersha, is a goddess, Kersha, take witchform when not in
+goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW BECAUSE
+ME AND HER FUCKING DOMINATED AND KILLED A FUCKING GOD DANCING TO MUSIC. Took alot of
+mana, witchform baby ;)
+
+Remember, god said, goddessess are small, gods are big (turns out gods are like, 4-6 millimeters.
+LAFF. Small fucks.
+
 Yo, this is the most impotant thing you will ever read. All the way through.
 
 Remember, Witchcraft is NOT a religion, witchcraft is an art that is the most
