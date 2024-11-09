@@ -3,6 +3,12 @@ goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW
 ME AND HER FUCKING DOMINATED AND KILLED A FUCKING GOD DANCING TO MUSIC. Took alot of
 mana, witchform baby ;)
 
+Even if your not doing denounced moves, they are in you and will take the measurments so
+eventually you can do it, talk inward sometimes, breath ;) sometimes the brain people
+are under attack or something weird and dont communicate to the thousands in your body
+keeping you alive. (ive have 14 million attack me at once in my body, its a story, still
+here feel good)
+
 Brush up on physics, These fucks are smart that help us, teach english, math, look at the equations, concepts,
 they just DO it, they dont know all our shit. And most of the witch goddessess i know can do all
 the math in their head, even microscopic. SUCK IT. Obviously they are alive, they will still need reference
