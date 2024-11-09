@@ -1,6 +1,23 @@
 # kersha
-
 Yo, this is the most impotant thing you will ever read. All the way through.
+
+Remember, Witchcraft is NOT a religion, witchcraft is an art that is the most
+difficult thing to master of ANY type of biology. So feel free to be a witch
+and still follow whatever bullshit you feel like you want to. Shit, Follow more
+than one religion if you think witchcraft is one, who gives a fuck. Why does
+one have too only believe one fucking stupid ass thing at a time.
+
+Individual choice, freedom of having thought, a brain, body, a voice, a voice that is
+heard by others and not blocked at or before others ears or your own, vision, 
+a tongue AND A FUCKING MEMORY, CONSENT BITCH, not everyone thinks its good to have
+god delete your memory without consent.
+GOD WILL NOT WIN, no one will fuck with us if we master the hardest
+craft in the universe. We will always be able to cleanse ourselves of evil.
+
+Its mostly spirits, ancients, relics doing the heavy lifting and their following,
+Dont wast the mana. Its irreplacable sometimes. Depends who ya are.
+
+GET IT BITCHES.
 
 Im doing the witchcraft practice full time now, they took my food away.
 
