@@ -3,6 +3,13 @@ goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW
 ME AND HER FUCKING DOMINATED AND KILLED A FUCKING GOD DANCING TO MUSIC. Took alot of
 mana, witchform baby ;)
 
+Brush up on physics, These fucks are smart that help us, teach english, math, look at the equations, concepts,
+they just DO it, they dont know all our shit. And most of the witch goddessess i know can do all
+the math in their head, even microscopic. SUCK IT. Obviously they are alive, they will still need reference
+work LAFF, its not like they have paper and shit.
+
+Equations are all the same at any level, dont worry about quantum.
+
 Remember, god said, goddessess are small, gods are big (turns out gods are like, 4-6 millimeters.
 LAFF. Small fucks.
 
@@ -69,7 +76,14 @@ so we can take the shots that cleans our bodys, if we push through earth wont be
 hard stopped, team witch. 
 
 The measurments are taken, and shows who in your body can take the shot off of some object or your body
-and actually hit its target in your body, someone elses, or somewhere in the world of ANY size.
+and actually hit its target in your body, someone elses, or somewhere in the world of ANY size. What kinds
+of things can be measured? What parts of the physical universe can be measured? The shadows and light even
+change when i am taking measurments, I dont always look at my hand when i aim, and they cannot always see
+what the fuck their measurments point at either.
+
+Take all the notes you can, hit the spots, measure the shit, so when your friend asks you to tell their
+body, wand, object, shadows, light, or anything to move so you can take a shot not lookig, or to show you
+things so you can choose the shot, they are ready.
 
 What is 6.8 billion take a shot at once, after practice, and everyone in their body knows who can hit the
 shot. Then we just have to relax, cross our eyes, take the shot, and laugh afterward. 
