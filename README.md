@@ -3,6 +3,8 @@ goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW
 ME AND HER FUCKING DOMINATED AND KILLED A FUCKING GOD DANCING TO MUSIC. Took alot of
 mana, witchform baby ;)
 
+Look up debouncing for buttons in engineering.
+
 Even if your not doing denounced moves, they are in you and will take the measurments so
 eventually you can do it, talk inward sometimes, breath ;) sometimes the brain people
 are under attack or something weird and dont communicate to the thousands in your body
@@ -102,6 +104,12 @@ It doesnt take many shots.
 THEY DONT KNOW WHAT YOU ARE AIMING AT AS A HUMAN, CROSS EYE VISION x 7. 
 FORWARD, BACK, VERTICAL, HORIZONTAL CROSS EYED VISION. IT EXISTS.
 THEY WILL NEVER KNOW WHY YOU SHOT  WHERE YOU DID EITHER.
+
+One went under the tip of my wand as i had the tip on the table, it moved, i
+dont know what one moved it, but when the god ball got there they said,
+why did you move me here. After it moved they said, he pocked me.
+
+
 
 DONT WASTE YOU MANA.
 
