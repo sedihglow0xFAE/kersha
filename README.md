@@ -9,6 +9,10 @@ are under attack or something weird and dont communicate to the thousands in you
 keeping you alive. (ive have 14 million attack me at once in my body, its a story, still
 here feel good)
 
+I move ALL the time, measurments of ANY SIZE, but real small, you know how it goes. Shits hard. ;)
+
+I told you witchcraft is all science.
+
 Brush up on physics, These fucks are smart that help us, teach english, math, look at the equations, concepts,
 they just DO it, they dont know all our shit. And most of the witch goddessess i know can do all
 the math in their head, even microscopic. SUCK IT. Obviously they are alive, they will still need reference
