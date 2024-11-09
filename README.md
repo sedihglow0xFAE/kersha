@@ -51,5 +51,11 @@ What is 6.8 billion take a shot at once, after practice, and everyone in their b
 shot. Then we just have to relax, cross our eyes, take the shot, and laugh afterward. 
 It doesnt take many shots.
 
+THEY DONT KNOW WHAT YOU ARE AIMING AT AS A HUMAN, CROSS EYE VISION x 7. 
+FORWARD, BACK, VERTICAL, HORIZONTAL CROSS EYED VISION. IT EXISTS.
+THEY WILL NEVER KNOW WHY YOU SHOT  WHERE YOU DID EITHER.
+
+DONT WASTE YOU MANA.
+
 
 Thoughts and things, i think i scored an extra day to finish it. -_-;
