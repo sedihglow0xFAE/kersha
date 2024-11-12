@@ -3,6 +3,10 @@ goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW
 ME AND HER FUCKING DOMINATED AND KILLED A FUCKING GOD DANCING TO MUSIC. Took alot of
 mana, witchform baby ;)
 
+Hit me up bitches! 253-310-6664 OG number, will get it back eventually OR ELSE.
+Current phone number, government phone, 1-503-421-2740 
+Current phone number, 1-503-421-2740
+
 Look up debouncing for buttons in engineering.
 
 Even if your not doing denounced moves, they are in you and will take the measurments so
@@ -109,9 +113,6 @@ One went under the tip of my wand as i had the tip on the table, it moved, i
 dont know what one moved it, but when the god ball got there they said,
 why did you move me here. After it moved they said, he pocked me.
 
-
-
 DONT WASTE YOU MANA.
-
 
 Thoughts and things, i think i scored an extra day to finish it. -_-;
