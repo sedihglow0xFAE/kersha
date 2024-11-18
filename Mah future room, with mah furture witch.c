@@ -21,3 +21,7 @@ For some reason these aesthetics and types of houses and rooms and yards are a r
 christians think witches are evil and need to be burned, drowned or lynched. GOOD THOUGHTS AND
 ACTIONS RETARDS. Stop sending your fucking people and your no name bitch ass things to kill me and
 my spirits and friends so i can sit in my bathtub. Thanks.
+
+  
+And this one is for the minis.
+https://www.pinterest.com/pin/413697915789471162/
