@@ -1,6 +1,11 @@
 Spectral
 https://www.pinterest.com/pin/16958936095662380/
 
+I told you witches knew what an atom was. Doesnt mean all of them did!
+But these days, yeah... They probably knew what they looked like tho.
+Heres the evidence.
+https://www.pinterest.com/pin/2744449768364784/
+
 Spooky ghost? :/
 https://www.pinterest.com/pin/b-o-o-in-2024--8936899256614355/
 
