@@ -1,6 +1,9 @@
 Spectral
 https://www.pinterest.com/pin/16958936095662380/
 
+Spooky ghost? :/
+https://www.pinterest.com/pin/b-o-o-in-2024--8936899256614355/
+
 This is what i mean, guys are too afraid of being called gay to have a room like this. I get laid. They dont.
 
 Why cant i have a room ;like this.
@@ -40,6 +43,9 @@ https://www.pinterest.com/pin/4362930883172878/
 
 We go glass art too, full circle.
 https://www.pinterest.com/pin/halloween-witch-stained-glass-skeleton-pumpkin-crow-etsy-in-2024--155303888161164286/
+
+I told you we do glass art too.
+https://www.pinterest.com/pin/imagens-in-2024--19140367161583823/
 
 What region do you think this type of witch lives in?
 https://www.pinterest.com/pin/1266706140095584/
