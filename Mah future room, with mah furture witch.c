@@ -1,3 +1,7 @@
+From the chat -
+"See, thats James" - the chat
+https://www.pinterest.com/pin/1759287347783467/
+
 When my bitch (dont kill me) who is not my bitch (maybe i wont die if i say that)
 is wearing colors.
 https://www.pinterest.com/pin/16818198601654347/
