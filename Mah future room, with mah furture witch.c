@@ -40,3 +40,6 @@ https://www.pinterest.com/pin/halloween-witch-stained-glass-skeleton-pumpkin-cro
 
 What region do you think this type of witch lives in?
 https://www.pinterest.com/pin/1266706140095584/
+
+Then she showed her age. I knew she knew at least some sorcerressy
+https://www.pinterest.com/pin/774124930181862/
