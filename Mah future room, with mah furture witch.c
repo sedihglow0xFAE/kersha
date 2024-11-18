@@ -46,3 +46,6 @@ https://www.pinterest.com/pin/774124930181862/
 
 Mother crone pissed she has to wear purple for kersha day. Shes more of a blue girl.
 https://www.pinterest.com/pin/67976275686042607/
+
+A young crone.
+https://www.pinterest.com/pin/281543724462706/
