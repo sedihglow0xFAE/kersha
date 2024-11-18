@@ -31,3 +31,6 @@ https://www.pinterest.com/pin/563018697612517/
 
 Corn goddess broom
 https://www.pinterest.com/pin/rustic-cinnamon-broom--570268371581879727/
+
+We go glass art too, full circle.
+https://www.pinterest.com/pin/halloween-witch-stained-glass-skeleton-pumpkin-crow-etsy-in-2024--155303888161164286/
