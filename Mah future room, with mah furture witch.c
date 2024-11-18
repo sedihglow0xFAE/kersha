@@ -118,6 +118,11 @@ https://www.pinterest.com/pin/1196337403125818/
 Fae minis,
 https://www.pinterest.com/pin/860680178821013911/
 
+All the minis need this.
+https://www.pinterest.com/pin/563018697130563/
+Its a tough world out there
+
+
 We go glass art too, full circle.
 https://www.pinterest.com/pin/halloween-witch-stained-glass-skeleton-pumpkin-crow-etsy-in-2024--155303888161164286/
 
@@ -178,6 +183,9 @@ https://www.pinterest.com/pin/37014028182610031/
 What dragon of mine do you think its for?
 https://www.pinterest.com/pin/33917803438750462/
 https://www.pinterest.com/pin/2-yjsochewy-in-2024--633387442732125/
+Greek glock sir, SIR, theres nothing we could do.
+https://www.pinterest.com/pin/1072067886277334067/
+https://www.pinterest.com/pin/618963542572496549/ war boots . com lists
 
 For scilla
 https://www.pinterest.com/pin/412783122118217680/
