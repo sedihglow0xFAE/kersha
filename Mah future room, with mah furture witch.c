@@ -150,10 +150,18 @@ https://www.pinterest.com/pin/1196337403248792/
 https://www.pinterest.com/pin/70437489157940/
 And of course, mah girl, mah mother crone, i hope your doing okay. Love sedihglow.
 https://www.pinterest.com/pin/880805639620239025/
+I told you we got sickles too.
+https://www.pinterest.com/pin/4644405859751329/
 
 A young crone.
 https://www.pinterest.com/pin/281543724462706/
 https://www.pinterest.com/pin/4785143350406789/
+We got moons too
+https://www.pinterest.com/pin/1092263715872414813/
+https://www.pinterest.com/pin/4081455906248350/
+
+Try this staff next time dear.
+https://www.pinterest.com/pin/4151824651544455/
 
 See, if greeks wore this, then they would be closer to being as hot as a
 NW witch.
