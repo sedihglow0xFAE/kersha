@@ -5,6 +5,10 @@ https://www.pinterest.com/pin/18084835997689445/
 Spectral
 https://www.pinterest.com/pin/16958936095662380/
 
+Sorry sir, nothings sexier than a NW witch.
+(Still need to refind that NW witch of purple dark variety)
+https://www.pinterest.com/pin/5277724558815329/
+
 I told you witches knew what an atom was. Doesnt mean all of them did!
 But these days, yeah... They probably knew what they looked like tho.
 Heres the evidence.
