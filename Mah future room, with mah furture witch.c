@@ -146,6 +146,8 @@ https://www.pinterest.com/pin/15621929951151988/
 Bess remember.
 https://www.pinterest.com/pin/9429480465400338/
 https://www.pinterest.com/pin/914862412835069/
+for the wedding
+https://www.pinterest.com/pin/western-butterfly-woman-in-2024--3025924743828200/
 
 Mother crone pissed she has to wear purple for kersha day.
 https://www.pinterest.com/pin/67976275686042607/
@@ -217,6 +219,7 @@ This is what she had when she worked on the molten core, lets be real.
 https://www.pinterest.com/pin/tiny-clothing-ideas--1196337399617820/
 
 For scilla
+https://www.pinterest.com/pin/227783693647575579/
 https://www.pinterest.com/pin/412783122118217680/
 https://www.pinterest.com/pin/4785143350422004/
 This is greek. Tell nyx
@@ -247,6 +250,7 @@ https://www.pinterest.com/pin/ceramics-in-2024--703756186958737/
 
 hi lilith
 https://www.pinterest.com/pin/703756186151079/
+https://www.pinterest.com/pin/30610472461076014/
 
 For mah space alien girl hedisia who needsa refund. And also for
 The other girl i owe a refund too. :/
