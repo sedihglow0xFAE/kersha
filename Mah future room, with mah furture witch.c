@@ -1,3 +1,7 @@
+This is what my crone looks like, minus the mask.
+Who you think the NW witches are? They look like this too, trust.
+https://www.pinterest.com/pin/18084835997689445/
+
 Spectral
 https://www.pinterest.com/pin/16958936095662380/
 
