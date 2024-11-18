@@ -3,6 +3,9 @@ From the chat -
 https://www.pinterest.com/pin/1759287347783467/
 https://www.pinterest.com/pin/surreal-fever-dreams-by-klaartje-lambrechts--321233385929549420/
 
+Weapons of choice for a witch and a goddess, dont ya ge it?
+https://www.pinterest.com/pin/1477812373023225/
+
 Why do people call me gay and why do i love womens clothing? I hope this clears things up.
 https://www.pinterest.com/pin/184999497188811183/
 https://www.pinterest.com/pin/1125968651947034/
@@ -23,6 +26,11 @@ https://www.pinterest.com/pin/703756187656300/
 https://www.pinterest.com/pin/1407443628752693/
 https://www.pinterest.com/pin/1407443628962607/ Underware
 https://www.pinterest.com/pin/1337074888307852/ Stompers. sorry, get the reference?
+
+Now these are gauntlets
+https://www.pinterest.com/pin/homeforpeculiarartists--643733340509712297/
+Now this is a girdle with claws
+https://www.pinterest.com/pin/321796335892546612/
 
 Why you think we fly high like a butterfly? To get shit like this.
 https://www.pinterest.com/pin/703756187557520/
@@ -116,6 +124,7 @@ https://www.pinterest.com/pin/1266706140095584/
 
 Then she showed her age. I knew she knew at least some sorcerressy
 https://www.pinterest.com/pin/774124930181862/
+https://www.pinterest.com/pin/295408056836668848/
 
 Mother crone pissed she has to wear purple for kersha day.
 https://www.pinterest.com/pin/67976275686042607/
@@ -124,6 +133,7 @@ https://www.pinterest.com/pin/10133167905323395/
 https://www.pinterest.com/pin/531072981078232425/
 What you think she wears under that dress? So you dont peek. (or so you do?)
 https://www.pinterest.com/pin/1196337403248792/
+https://www.pinterest.com/pin/70437489157940/
 
 A young crone.
 https://www.pinterest.com/pin/281543724462706/
@@ -151,3 +161,18 @@ https://www.pinterest.com/pin/469781804899628368/
 
 For my dragon.
 https://www.pinterest.com/pin/70437489036574/
+https://www.pinterest.com/pin/70437489157940/
+But this is more fitting
+https://www.pinterest.com/pin/37014028182610031/
+What dragon of mine do you think its for?
+https://www.pinterest.com/pin/33917803438750462/
+https://www.pinterest.com/pin/2-yjsochewy-in-2024--633387442732125/
+
+For scilla
+https://www.pinterest.com/pin/412783122118217680/
+
+This is for my angry bunnys and mouses out there, Whats good.
+https://www.pinterest.com/pin/my-styling-makeup-work--983755112339105745/
+
+Works for egypt and mah witches.
+https://www.pinterest.com/pin/1112952126662395138/
