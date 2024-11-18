@@ -43,3 +43,6 @@ https://www.pinterest.com/pin/1266706140095584/
 
 Then she showed her age. I knew she knew at least some sorcerressy
 https://www.pinterest.com/pin/774124930181862/
+
+Mother crone pissed she has to wear purple for kersha day. Shes more of a blue girl.
+https://www.pinterest.com/pin/67976275686042607/
