@@ -26,6 +26,7 @@ https://www.pinterest.com/pin/703756187656300/
 https://www.pinterest.com/pin/1407443628752693/
 https://www.pinterest.com/pin/1407443628962607/ Underware
 https://www.pinterest.com/pin/1337074888307852/ Stompers. sorry, get the reference?
+https://www.pinterest.com/pin/73183562688664691/
 https://www.pinterest.com/pin/57561701482808890/
 https://www.pinterest.com/pin/6051780743940401/
 https://www.pinterest.com/pin/1--563018697938955/
@@ -167,6 +168,8 @@ https://www.pinterest.com/pin/1092263715872414813/
 https://www.pinterest.com/pin/4081455906248350/
 https://www.pinterest.com/pin/10133167905303681/
 https://www.pinterest.com/pin/4785143350422004/
+https://www.pinterest.com/pin/3518505953976227/
+https://www.pinterest.com/pin/8303580558011437/
 
 Try this staff next time dear.
 https://www.pinterest.com/pin/4151824651544455/
@@ -206,9 +209,18 @@ https://www.pinterest.com/pin/52565520644213101/
 If this isnt enough for my space dragon i dont know what is, just need more greek
 weapons is suppose.
 https://www.pinterest.com/pin/1618549863150833/
+https://www.pinterest.com/pin/964825920166702139/
+https://www.pinterest.com/pin/spider-queen--3518505952792163/
+This is more, on earth for her tho.
+https://www.pinterest.com/pin/140806231367355/
+This is what she had when she worked on the molten core, lets be real.
+https://www.pinterest.com/pin/tiny-clothing-ideas--1196337399617820/
 
 For scilla
 https://www.pinterest.com/pin/412783122118217680/
+https://www.pinterest.com/pin/4785143350422004/
+This is greek. Tell nyx
+https://www.pinterest.com/pin/5840674510661274/
 
 This is for my angry bunnys and mouses out there, Whats good.
 https://www.pinterest.com/pin/my-styling-makeup-work--983755112339105745/
@@ -223,3 +235,20 @@ https://www.pinterest.com/pin/memes-in-2024--8655424279978123/
 
 Works for egypt and mah witches.
 https://www.pinterest.com/pin/1112952126662395138/
+
+Who was the snow queen again?
+https://www.pinterest.com/pin/70437487867995/
+
+Ancients of the universe bro
+https://www.pinterest.com/pin/734086808001442391/
+
+Tea with the sisters.
+https://www.pinterest.com/pin/ceramics-in-2024--703756186958737/
+
+hi lilith
+https://www.pinterest.com/pin/703756186151079/
+
+For mah space alien girl hedisia who needsa refund. And also for
+The other girl i owe a refund too. :/
+https://www.pinterest.com/pin/75716837482979830/
+https://www.pinterest.com/pin/70437487868091/
