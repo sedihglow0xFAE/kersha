@@ -127,6 +127,8 @@ https://www.pinterest.com/pin/1266706140095584/
 Then she showed her age. I knew she knew at least some sorcerressy
 https://www.pinterest.com/pin/774124930181862/
 https://www.pinterest.com/pin/295408056836668848/
+She is a crone after all.
+https://www.pinterest.com/pin/15621929951151988/
 
 Mother crone pissed she has to wear purple for kersha day.
 https://www.pinterest.com/pin/67976275686042607/
