@@ -34,3 +34,6 @@ https://www.pinterest.com/pin/rustic-cinnamon-broom--570268371581879727/
 
 We go glass art too, full circle.
 https://www.pinterest.com/pin/halloween-witch-stained-glass-skeleton-pumpkin-crow-etsy-in-2024--155303888161164286/
+
+What region do you think this type of witch lives in?
+https://www.pinterest.com/pin/1266706140095584/
