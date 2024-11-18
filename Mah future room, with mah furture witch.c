@@ -17,10 +17,12 @@ https://www.pinterest.com/pin/703756187557520/
 https://www.pinterest.com/pin/2814818511480840/
 https://www.pinterest.com/pin/3870349674212624/
 https://www.pinterest.com/pin/12384967722693494/
+https://www.pinterest.com/pin/1045398132254872471/
 https://www.pinterest.com/pin/151574343703958364/
 https://www.pinterest.com/pin/703756187656300/
 https://www.pinterest.com/pin/1407443628752693/
 https://www.pinterest.com/pin/1407443628962607/ Underware
+https://www.pinterest.com/pin/1337074888307852/ Stompers. sorry, get the reference?
 
 Why you think we fly high like a butterfly? To get shit like this.
 https://www.pinterest.com/pin/703756187557520/
@@ -146,3 +148,6 @@ https://www.pinterest.com/pin/422281210990739/
 
 I wonder why spiders like me.
 https://www.pinterest.com/pin/469781804899628368/
+
+For my dragon.
+https://www.pinterest.com/pin/70437489036574/
