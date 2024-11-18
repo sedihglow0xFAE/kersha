@@ -1,3 +1,7 @@
+When my bitch (dont kill me) who is not my bitch (maybe i wont die if i say that)
+is wearing colors.
+https://www.pinterest.com/pin/16818198601654347/
+
 This is what my crone looks like, minus the mask.
 Who you think the NW witches are? They look like this too, trust.
 https://www.pinterest.com/pin/18084835997689445/
