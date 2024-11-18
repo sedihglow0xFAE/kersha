@@ -136,6 +136,8 @@ https://www.pinterest.com/pin/531072981078232425/
 What you think she wears under that dress? So you dont peek. (or so you do?)
 https://www.pinterest.com/pin/1196337403248792/
 https://www.pinterest.com/pin/70437489157940/
+And of course, mah girl, mah mother crone, i hope your doing okay. Love sedihglow.
+https://www.pinterest.com/pin/880805639620239025/
 
 A young crone.
 https://www.pinterest.com/pin/281543724462706/
