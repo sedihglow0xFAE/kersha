@@ -282,6 +282,10 @@ https://www.pinterest.com/pin/75716837482979830/
 https://www.pinterest.com/pin/70437487868091/
 Give this one to your mom girl
 https://www.pinterest.com/pin/spooky-time-in-2024--1477812373235151/
+https://www.pinterest.com/pin/122652789844988814/
 
 And of course for my black cowboys
 https://www.pinterest.com/pin/251005379223209961/
+
+Tell india, i get wet with madussa and give shotguns in hell, it aint hard to tell.
+< insert appology for medussa here > - to be comeing
