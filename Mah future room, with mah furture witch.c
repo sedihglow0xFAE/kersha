@@ -148,6 +148,7 @@ https://www.pinterest.com/pin/9429480465400338/
 https://www.pinterest.com/pin/914862412835069/
 for the wedding
 https://www.pinterest.com/pin/western-butterfly-woman-in-2024--3025924743828200/
+https://www.pinterest.com/pin/clothes-fashion--13299761393224580/
 I cant make any garuntees.
 https://www.pinterest.com/pin/character-clothing--5418462044218303/
 
@@ -176,6 +177,10 @@ https://www.pinterest.com/pin/10133167905303681/
 https://www.pinterest.com/pin/4785143350422004/
 https://www.pinterest.com/pin/3518505953976227/
 https://www.pinterest.com/pin/8303580558011437/
+https://www.pinterest.com/pin/292382200829503829/
+Maybe switch to this.. share it with nyx or something, but you dont HAVE
+to switch to black. But maybe when this is appropriate.. with nyx.
+https://www.pinterest.com/pin/64598575900235533/
 
 Try this staff next time dear.
 https://www.pinterest.com/pin/4151824651544455/
