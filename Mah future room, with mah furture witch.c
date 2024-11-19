@@ -293,3 +293,7 @@ https://www.pinterest.com/pin/251005379223209961/
 
 Tell india, i get wet with madussa and give shotguns in hell, it aint hard to tell.
 < insert appology for medussa here > - to be comeing
+https://www.ramana-maharshi.org/northwest-nirvana-hindu-temples-in-portland-oregon/
+
+For the cyclops's
+<Insert her shit here.>
