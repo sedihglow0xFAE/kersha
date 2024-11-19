@@ -166,6 +166,8 @@ I told you we got sickles too.
 https://www.pinterest.com/pin/4644405859751329/
 These are for how damaged are, love sedihglow
 https://www.pinterest.com/pin/318137161194827788/
+And of course, when we do, or wedding or something
+https://www.pinterest.com/pin/6825836928852649/
 
 A young crone.
 https://www.pinterest.com/pin/281543724462706/
