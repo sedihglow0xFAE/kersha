@@ -1,4 +1,4 @@
-From the chat -
+ From the chat -
 "See, thats James" - the chat
 https://www.pinterest.com/pin/1759287347783467/
 https://www.pinterest.com/pin/surreal-fever-dreams-by-klaartje-lambrechts--321233385929549420/
@@ -161,6 +161,8 @@ And of course, mah girl, mah mother crone, i hope your doing okay. Love sedihglo
 https://www.pinterest.com/pin/880805639620239025/
 I told you we got sickles too.
 https://www.pinterest.com/pin/4644405859751329/
+These are for how damaged are, love sedihglow
+https://www.pinterest.com/pin/318137161194827788/
 
 A young crone.
 https://www.pinterest.com/pin/281543724462706/
