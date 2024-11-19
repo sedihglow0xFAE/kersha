@@ -245,6 +245,9 @@ https://www.pinterest.com/pin/307370743337157868/
 This is greek. Tell nyx
 https://www.pinterest.com/pin/5840674510661274/
 
+For the kraken, maybe at a non purple wife dressed wedding, or just daily
+https://www.pinterest.com/pin/492649953323726/
+
 This is for my angry bunnys and mouses out there, Whats good.
 https://www.pinterest.com/pin/my-styling-makeup-work--983755112339105745/
 For the night
