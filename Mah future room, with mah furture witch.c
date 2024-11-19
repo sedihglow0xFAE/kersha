@@ -298,5 +298,7 @@ https://www.ramana-maharshi.org/northwest-nirvana-hindu-temples-in-portland-oreg
 For the cyclops's
 <Insert her shit here.>
 This is the most beautiful tree for the most hardcore fucking goddess ive ever seen fight a noname bitch ass god and some
-shadow ass stupid fucking sedis? (Look at the spelling sir)
+shadow ass stupid fucking sedis? (Look at the spelling sir), AT THE SAME TIME, AFTER SPINNING GOING INSANE LOSING THEIR SHIT FOR
+MONTHS. (Literally spinning, it was fucked. took awhile to break out of that shit) (time goddess # 3 of the time goddess company, 
+the one who stayed and i knew about)
 https://www.google.com/search?q=northwest+hindu+witch+trees&sca_esv=03e995a0e07cb544&rlz=1C1GCEA_enUS1137US1137&udm=2&biw=1280&bih=855&sxsrf=ADLYWIJr3_wOBGuMsTjkHGpbQzWUqrRr4w%3A1732059903063&ei=_yI9Z8y5A_TN0PEPl5nr6QI&ved=0ahUKEwiMtYH6yemJAxX0JjQIHZfMOi0Q4dUDCBA&uact=5&oq=northwest+hindu+witch+trees&gs_lp=EgNpbWciG25vcnRod2VzdCBoaW5kdSB3aXRjaCB0cmVlc0i9NVCgDFitNHAFeACQAQCYAXagAcgMqgEEMjQuM7gBA8gBAPgBAZgCFaAC2gfCAggQABgIGAoYHsICBBAjGCfCAgsQABiABBixAxiDAcICChAAGIAEGEMYigXCAggQABiABBixA8ICDhAAGIAEGLEDGIMBGIoFwgIFEAAYgATCAgcQABiABBgKwgIGEAAYBRgewgIGEAAYCBgemAMAiAYBkgcEMjAuMaAHp1w&sclient=img#vhid=TTM6UbUR5a4m3M&vssid=mosaic
