@@ -233,6 +233,9 @@ This is what she had when she worked on the molten core, lets be real.
 https://www.pinterest.com/pin/tiny-clothing-ideas--1196337399617820/
 
 For scilla
+What time is it out at yar sea ms.scilla and their boat to be.
+https://timeandtidewatches.com/why-i-put-my-own-money-behind-the-omega-seamaster-diver-300m/
+OMEGA IS NOT = DOUBLE U
 https://www.pinterest.com/pin/227783693647575579/
 https://www.pinterest.com/pin/412783122118217680/
 https://www.pinterest.com/pin/4785143350422004/
