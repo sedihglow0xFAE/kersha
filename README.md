@@ -53,6 +53,17 @@ and the government has not contacted me a single time? And they were calling me 
 and i have a military family.... and i am an engineer... and a cook.... and human.... and most of the people who hang out with me are actually
 here to.... fucking help heal my body from all this shit.... hm.. they are living lifeforms you know.... fucking dumb bitches.
 
+Remember, i couldnt be civilly Rico's? remember how every constitutinal right was broken in northwest portland? Remember the
+martial law beacon? Thats why civilians of portland went on a schedule...
+
+How fucking retared are you fucking people who run this fucking country. To cover up a fucking rape by homeland security and their
+bloodsport god you tell god to cover up millions of people knowing about this at all costs. GOOD ONE.
+
+Is homeland security officers who rape up to 68% of rape cases in portland at time of checking really worth all the shit thats happened?
+NO.
+
+So...
+
 # kersha, its the name of the repo. Kersha, is a goddess, Kersha, take witchform when not in
 goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW BECAUSE
 ME AND HER FUCKING DOMINATED AND KILLED A FUCKING GOD DANCING TO MUSIC. Took alot of
