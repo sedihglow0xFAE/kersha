@@ -1,6 +1,57 @@
 The government needs to contact me. People are fucking retarded and so is the government for never
 contacting me. Fucking retarded ass fucks. Is there any confusion?
 
+Is there any confusion that the people who are sending stupid ass god armys at me need to die?
+
+You should really contact the person gods and goddesses said to contact for this. 
+
+Armmegedon has been hard stopped for over a year, i think everyone is tired of it.
+
+The stupid balls in the sky and on the ground are spheres, with more than one individual in
+them. So dont go just killing them all.
+
+Its amazing how stupid you fucks in the government are for not contacting the one person you
+were supposed to.
+
+Remember portland towers? I know biden wanted to wait for the next presidency but...
+how fucking retarded is that? Very.
+
+Also PRIMORDIIIIIIIIIAAAAAAL goddesses and gods create planets from scratch. like NYX does.
+
+So tell your home land security fucks and people hired by them to fuck off. And dont wait
+for the change in the white house. Remember when the crone sisters were at the white house and
+said what needed to happen? Well, there are some goddesses and gods from SPACE, like URSULA from
+SPACE who had not been on earth in 3000 years, who and RA the god of our star who are very angry.
+
+Homeland security and the government needs to stop threatening anyone i try to get a job at or try
+to get shelter at with having their god kill them or having them come and rape their family and take
+out their eyeballs. Theres been enough civillians hurt by your fucking bullshit for god who is trying
+to enslave the human race or kill us all anyway.
+
+So.... remember a year+ ago when homeland security set up for god, no name bitch ass diety thing and his
+cohorts a rape scene? everyone who was at the apartment remembers. The tripple or double homocide they were gonna
+do at the end... and then blame other countrys. One of the girls fathers is one of the most briliant minds to ever
+work at intel and helped with scillicon and shit? Anyone remember? Hellllloooooo. 
+
+Also almost every god and goddess on earth agrees if i die or get hurt they will just kill you all anyway.
+
+So why stupid ass promises did you all make to these gods trying to kill us all instead of the basic ass shit
+that was asked for by the ones protecting ALL LIFE ON THE PLANET? So the united states of america can keep saying
+our nukes will hit you scotland because our god will maek sure of it but our god will make sure yours dont hit?
+
+HELLO? I think everyone involved is tired of protecting ALL LIFE ON THE PLANET, so the United states of american god they
+believe so heavily in can try to have the USA USA USA take over the world and enslave the human race.
+
+Hi, all the scientific community knows what the fuck is going on, (thats world wide wow!).
+
+Also, the spirits and things i hang out with are not an army, stop sending your fucking stupid fucks here to kill me and the spirits
+stuff i hang out with. Keep your own fucking god and their puppets and shit, seriously. 
+
+It was even said i was supposed to be the communication between GODDESSESS and GODS that are preventing us all from dying,
+and the government has not contacted me a single time? And they were calling me a terrorist for having watched nopixel on twitch.tv...
+
+and i have a military family.... and i am an engineer... and a cook.... and human.... and most of the people who hang out with me are actually
+here to.... fucking help heal my body from all this shit.... hm.. they are living lifeforms you know.... fucking dumb bitches.
 
 # kersha, its the name of the repo. Kersha, is a goddess, Kersha, take witchform when not in
 goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW BECAUSE
