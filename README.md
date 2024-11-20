@@ -1,3 +1,7 @@
+The government needs to contact me. People are fucking retarded and so is the government for never
+contacting me. Fucking retarded ass fucks. Is there any confusion?
+
+
 # kersha, its the name of the repo. Kersha, is a goddess, Kersha, take witchform when not in
 goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW BECAUSE
 ME AND HER FUCKING DOMINATED AND KILLED A FUCKING GOD DANCING TO MUSIC. Took alot of
