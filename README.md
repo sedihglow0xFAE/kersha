@@ -1,3 +1,7 @@
+IVE NEVER COMMITTED A CRIME, I AM TIRED OF BEING A PUBLIC PRISONER FOR THE UNITED STATES GOVERNMENT BECAUSE IVE NEVER COMMITTED A CRIME OR 
+EVEN SINNED AT ALL. FUCK MY LIFE.
+
+
 The government needs to contact me. People are fucking retarded and so is the government for never
 contacting me. Fucking retarded ass fucks. Is there any confusion?
 
@@ -63,6 +67,7 @@ Is homeland security officers who rape up to 68% of rape cases in portland at ti
 NO.
 
 So...
+
 
 # kersha, its the name of the repo. Kersha, is a goddess, Kersha, take witchform when not in
 goddess form, Kersha, is in the spirit realm, and REALLY FUCKING SMALL RIGHT NOW BECAUSE
