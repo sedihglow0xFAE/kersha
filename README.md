@@ -1,3 +1,5 @@
+Hello, Gods, Goddesses, and spirits, and entitys that are tired of this shit are letting me and many others know homeland security has kidnapped more people, and they are kids and children to question them. WE NEED TO STOP THIS NOW. SAVE THE KIDS THAT GOT KIDNAPPED AND RETURN THEM TO THEIR PARENTS.
+
 IVE NEVER COMMITTED A CRIME, I AM TIRED OF BEING A PUBLIC PRISONER FOR THE UNITED STATES GOVERNMENT BECAUSE IVE NEVER COMMITTED A CRIME OR 
 EVEN SINNED AT ALL. FUCK MY LIFE.
 
