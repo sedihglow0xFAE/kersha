@@ -1,3 +1,9 @@
+And now i am told, homeland security shot a child they kidnapped. WILL ANYONE FUCKING HELP RESOLVE THIS? Phone is charging, i have email, i still have never
+been contacted. I am on git hub. I dont know what WOW means to you. What does it mean? Now some homeland security fuck is telling his stupid fucking spirits and
+officers to kill me (like they have been since the rape thing) because im posting about how they just shot a child they kidnapped.
+
+Soooo...................
+
 Hello, Gods, Goddesses, and spirits, and entitys that are tired of this shit are letting me and many others know homeland security has kidnapped more people, and they are kids and children to question them. WE NEED TO STOP THIS NOW. SAVE THE KIDS THAT GOT KIDNAPPED AND RETURN THEM TO THEIR PARENTS.
 
 IVE NEVER COMMITTED A CRIME, I AM TIRED OF BEING A PUBLIC PRISONER FOR THE UNITED STATES GOVERNMENT BECAUSE IVE NEVER COMMITTED A CRIME OR 
