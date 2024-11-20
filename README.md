@@ -1,3 +1,10 @@
+This git repo is owned by the same person as github.com/sedihglow
+
+All my shit has been stollen and i cannot log into that account. All my accounts got closed with banks, literally everyone pretty much knows the
+united states of america and homeland security is fucking retarded. So lets actually help the civilian public and stop these people from killing
+our women and children so some bitch ass god and his puppets can enslave the human race or actually kill it off for armmegedon. Anyone want to actually
+help our civilian public and people around the world not have their women and children killed so the human race goes extinct? :) Thanks.
+
 And now i am told, homeland security shot a child they kidnapped. WILL ANYONE FUCKING HELP RESOLVE THIS? Phone is charging, i have email, i still have never
 been contacted. I am on git hub. I dont know what WOW means to you. What does it mean? Now some homeland security fuck is telling his stupid fucking spirits and
 officers to kill me (like they have been since the rape thing) because im posting about how they just shot a child they kidnapped.
